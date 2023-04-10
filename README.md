@@ -19,4 +19,4 @@
 
 客服微信客服长按识别，无需加好友，都是万一免五，入金门槛1万左右。
 
-![](C:\Users\22511\Desktop\客服二维码.png)
+![](https://raw.githubusercontent.com/wangnian94/-/main/%E5%AE%A2%E6%9C%8D%E4%BA%8C%E7%BB%B4%E7%A0%81.png)
